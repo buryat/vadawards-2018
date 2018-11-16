@@ -1,1 +1,0 @@
-# vadawards-2018
